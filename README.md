@@ -1,6 +1,6 @@
 dont hate, and donate!
 
-gcash number: 09159217727
+gcash: 09159217727
 
 paypal: @MilanDonation
 
